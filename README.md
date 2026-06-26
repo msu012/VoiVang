@@ -1,3 +1,4 @@
+The water, the trees, and the grass of the season,
 51
 For my soul to be sated with scent, full of light,
 50
