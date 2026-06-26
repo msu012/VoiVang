@@ -1,3 +1,4 @@
+Here are the leaves of the gently swaying young branches;
 4
 Of the swallows and orioles, here is their infatuated love song;
 3
