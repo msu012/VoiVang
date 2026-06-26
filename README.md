@@ -1,3 +1,4 @@
+I want to bind the wind,
 36
 So its fragrance will not fly away.
 35
