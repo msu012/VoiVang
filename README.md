@@ -1,3 +1,4 @@
+10
 So its colors will not fade away;
 9
 I want to bind the wind,
