@@ -1,3 +1,4 @@
+The entire life that has just begun to bloom;
 12
 I want to hold tight the drifting clouds and circling wind,
 11
