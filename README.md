@@ -1,3 +1,4 @@
+39
 ​I want to extinguish the sun,
 38
 So its colors will not fade away;
