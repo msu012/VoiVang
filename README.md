@@ -1,3 +1,4 @@
+Hurry up! The season has not yet turned to dusk,
 14
 I want to embrace
 13
