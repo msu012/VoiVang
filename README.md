@@ -1,3 +1,4 @@
+32
 Of the swallows and orioles, here is their infatuated love song;
 31
 And here is the flash of light from blinking eyelashes,
