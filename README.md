@@ -1,3 +1,4 @@
+For my soul to be sated with scent, full of light,
 25
 To drain the freshness of the youth of the year;
 24
