@@ -1,3 +1,5 @@
+I am happy. But halfway through, I grieve:
+Spring is arriving, which means spring is passing,
 46
 Spring is still young, which means spring will grow old,
 45
