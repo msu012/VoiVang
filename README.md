@@ -1,3 +1,4 @@
+Of the swallows and orioles, here is their infatuated love song;
 3
 And here is the flash of light from blinking eyelashes,
 2
