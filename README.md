@@ -1,3 +1,4 @@
+30
 Every morning, the God of Joy knocks at the door;
 29
 I want to hold tight the drifting clouds and circling wind,
