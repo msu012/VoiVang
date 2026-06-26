@@ -1,3 +1,4 @@
+January is as delicious as a close pair of lips!
 47
 I am happy. But halfway through, I grieve:
 Spring is arriving, which means spring is passing,
