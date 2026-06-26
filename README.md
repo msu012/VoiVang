@@ -1,3 +1,5 @@
+I want to gather in a massive kiss
+The water, the trees, and the grass of the season,
 26
 For my soul to be sated with scent, full of light,
 25
